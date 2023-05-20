@@ -1,3 +1,7 @@
 # Proyecto-Personal-CV
 
-Dar lo mejor de mí en cada proyecto y en cada equipo de trabajo, aportar mis conocimientos y aprender cada día más, es mi principal objetivo.
+Mi principal objetivo es brindar lo mejor de mí en cada proyecto y en cada equipo de trabajo, contribuyendo con mis conocimientos y buscando aprender cada día más.
+
+
+
+
